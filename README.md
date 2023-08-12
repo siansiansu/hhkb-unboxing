@@ -1,4 +1,4 @@
-# HHKB HYBRID Type-S Snow 開箱 (非業配)
+# HHKB Professional HYBRID Type-S 英語配列／雪 開箱 (非業配)
 
 ## 前言
 在迎接 HHKB HYBRID Type-S 鍵盤的到來之前，我一直是 FILCO 紅軸鍵盤的愛用者，不過剛好它壞掉了 (絕對不是故意弄壞的😅)。
